@@ -3,7 +3,7 @@
 # discord: Eric#5582
 
 # [aireu aristia](https://iwa.s-ul.eu/pcJjl0jc) 
-![](https://twelve14.s-ul.eu/OMkv0xB5)
+![](https://i.imgur.com/BjJjPrf.png)
 
 # [chiv](https://www.dropbox.com/s/ktuswqckp5d7yd4/chiv.osk?dl=0) 
 ![](https://i.imgur.com/zXSyGl1.png)
