@@ -8,6 +8,9 @@
 # [chiv](https://www.dropbox.com/s/ktuswqckp5d7yd4/chiv.osk?dl=0) 
 ![](https://i.imgur.com/zXSyGl1.png)
 
+# [cookie kirby](https://shigeskinss.s-ul.eu/gEfiNoTv) 
+![](https://i.imgur.com/GeFu42c.png)
+
 # [emilia](https://www.dropbox.com/s/2rn2kkq8tyv1076/version%201.osk?dl=0) 
 ![](https://i.imgur.com/7V28nbf.png)
 
