@@ -3,7 +3,7 @@
 # discord: Eric#5582
 
 # [live happily watr (shirousa)](https://www.dropbox.com/s/e70qpdptk5qlzk4/live%20happily%20watr%20%28shirousa%29.osk?dl=0) 
-![](https://imgur.com/a/QPU23Ly)
+![](https://cdn.discordapp.com/attachments/707733713504567317/936302058418606080/unknown.png)
 
 # [live happily watr (yugen)](https://www.dropbox.com/s/jnjq0bv35ypresf/live%20happily%20watr%20%28yugen%29.osk?dl=0) 
 ![](https://imgur.com/a/W6UAZbp)
