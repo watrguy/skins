@@ -6,7 +6,7 @@
 ![](https://cdn.discordapp.com/attachments/707733713504567317/936302058418606080/unknown.png)
 
 # [live happily watr (yugen)](https://www.dropbox.com/s/jnjq0bv35ypresf/live%20happily%20watr%20%28yugen%29.osk?dl=0) 
-![](https://imgur.com/a/W6UAZbp)
+![](https://cdn.discordapp.com/attachments/707733713504567317/936302774671532082/unknown.png)
 
 # [live happily watr (rafis)](https://www.dropbox.com/s/3k1rc9p6kfwyomy/live%20happily%20watr%20%28rafis%29.osk?dl=0) 
-![](https://imgur.com/a/MwD67g5)
+![](https://cdn.discordapp.com/attachments/707733713504567317/936305124966543360/unknown.png)
