@@ -8,6 +8,9 @@
 # [watr2 (read)](https://www.dropbox.com/s/34v57gw7v5qp1d6/watr2%20%28read%29.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/707733713504567317/979412669893324840/unknown.png)
 
+# [watr2 (crezz)](https://www.dropbox.com/s/7kxsbkbxlq8v9jd/watr%202%20crezz.osk?dl=0) 
+![](https://media.discordapp.net/attachments/696547366328860732/985051215740170250/unknown.png?width=1202&height=676)
+
 # [watr2 (emilia)](https://www.dropbox.com/s/i06xyoesw91b9fo/watr%202%20emilia.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/707733713504567317/979413016355430420/unknown.png)
 
