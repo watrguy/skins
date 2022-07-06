@@ -11,6 +11,9 @@
 # [watr2 (crezz)](https://www.dropbox.com/s/7kxsbkbxlq8v9jd/watr%202%20crezz.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/696547366328860732/993769739946041394/unknown.png)
 
+# [watr2 (rafis)](https://www.dropbox.com/s/1dfbsf4edrl0tby/watr%202%20rafis.osk?dl=0) 
+![](https://cdn.discordapp.com/attachments/696547366328860732/994282887581007952/unknown.png)
+
 # [watr2 (toki)](https://www.dropbox.com/s/n3l0wfecvolpr07/watr%202%20toki.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/696547366328860732/993770251059724368/unknown.png)
 
