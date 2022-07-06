@@ -17,6 +17,9 @@
 # [watr2 (toki)](https://www.dropbox.com/s/n3l0wfecvolpr07/watr%202%20toki.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/696547366328860732/993770251059724368/unknown.png)
 
+# [watr2 (vv_)](https://www.dropbox.com/s/zwhuwzjv2mkd24w/watr%202%20vv_.osk?dl=0) 
+![](https://cdn.discordapp.com/attachments/696547366328860732/994283599467659385/unknown.png)
+
 # [watr2 (emilia)](https://www.dropbox.com/s/i06xyoesw91b9fo/watr%202%20emilia.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/707733713504567317/979413016355430420/unknown.png)
 
