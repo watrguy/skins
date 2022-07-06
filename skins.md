@@ -20,9 +20,6 @@
 # [watr 2 www](https://www.dropbox.com/s/czx9rh4tq7tabki/watr%202%20www.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/707733713504567317/979414662586196009/unknown.png)
 
-# [watr 2 oxycodone](https://www.dropbox.com/s/x13memf3m6sq7u9/watr%202%20oxycodone.osk?dl=0) 
-![](https://cdn.discordapp.com/attachments/707733713504567317/979415173779566622/unknown.png)
-
 # [watr 2 boop](https://www.dropbox.com/s/ynawig9mqq08fl1/watr2%20boop.osk?dl=0) 
 ![](https://cdn.discordapp.com/attachments/707733713504567317/979415540756004884/unknown.png)
 
